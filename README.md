@@ -1,3 +1,4 @@
+![logo](https://github.com/L0N3-RANG3R/L0N3-RANG3R/blob/main/banner.png)
 <h1 align="center">Hi 👋, I'm Mahin Mortuza</h1>
 <h3 align="center">A passionate full stack developer from Earth</h3>
 
