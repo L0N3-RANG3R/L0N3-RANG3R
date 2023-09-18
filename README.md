@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **L0N3RANG3R@protonmail.com**
 
-- ⚡ Fun fact **Fun😅**
+- ⚡ Fun fact **I once won a dance-off with my cat - but my cat still insists it was a tie!😅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
